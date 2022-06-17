@@ -12,6 +12,6 @@ Below is a list of additional information:
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I love groot from guardians of the galaxy, I love to play volleyball, and the beach is one of my favorite places.
 
-Here is a picture of my pet :grinning: 
+Thank you for reading, here is some eye candy :grinning: 
 
 ![](https://raw.githubusercontent.com/Krivera7522/Motatas/main/smaller.png?token=GHSAT0AAAAAABVXJEEUNUWMEES7LBW5PW4IYVMZFFQ)
