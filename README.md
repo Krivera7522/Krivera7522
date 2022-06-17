@@ -14,4 +14,4 @@ Below is a list of additional information:
 
 Thank you for reading, here is some eye candy :grinning: 
 
-![](https://raw.githubusercontent.com/Krivera7522/Motatas/main/smaller.png?token=GHSAT0AAAAAABVXJEEUNUWMEES7LBW5PW4IYVMZFFQ)
+![Meet Motatas](https://raw.githubusercontent.com/Krivera7522/Motatas/main/smaller.png?token=GHSAT0AAAAAABVXJEEVLW36Z25AK5DWZWZCYVMZQUQ)
